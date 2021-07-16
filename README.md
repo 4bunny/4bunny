@@ -5,6 +5,8 @@
 
 # 🐇 i like balls
 
+![logo](https://data.whicdn.com/images/356736622/original.gif)
+
 > and probably eggs
 
 > i code nonsense but dont judge me
