@@ -16,7 +16,7 @@
 
 ![logo](https://data.whicdn.com/images/314059973/original.jpg)
 
-> thanks bye
+> i made this acc just to share my repos ok bye thanks
 
 
 ![logo](https://data.whicdn.com/images/348129236/original.jpg)
